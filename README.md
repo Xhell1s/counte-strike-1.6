@@ -1,0 +1,1 @@
+# counte-strike-1.6
